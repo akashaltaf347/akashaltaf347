@@ -6,6 +6,7 @@
 [![Fiverr](https://img.shields.io/badge/Fiverr-Level_2_Seller-1DBF73?style=flat-square&logo=fiverr&logoColor=white)](https://fiverr.com/akashaltaf347)
 [![Upwork](https://img.shields.io/badge/Upwork-Top_Rated-14A800?style=flat-square&logo=upwork&logoColor=white)](https://upwork.com/freelancers/akashaltaf347)
 [![Website](https://img.shields.io/badge/Website-wptechstudio.net-0078D4?style=flat-square&logo=googlechrome&logoColor=white)](https://wptechstudio.net/)
+[![Instagram](https://img.shields.io/badge/Instagram-@akashaltaf347-E4405F?style=flat-square&logo=instagram&logoColor=white)](https://www.instagram.com/akashaltaf347)
 
 ## 🏆 Proof, not promises
 
@@ -33,6 +34,7 @@
 - 🌐 [wptechstudio.net](https://wptechstudio.net/)
 - 💼 [Fiverr](https://fiverr.com/akashaltaf347) · [Upwork](https://upwork.com/freelancers/akashaltaf347)
 - 🔗 [LinkedIn](https://www.linkedin.com/in/akashaltaf347)
+- 📸 [Instagram](https://www.instagram.com/akashaltaf347)
 
 ## 🏗️ Selected client work
 
