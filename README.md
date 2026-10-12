@@ -11,7 +11,7 @@
 ## 🏆 Proof, not promises
 
 - **5+ years** building WordPress websites
-- **700+ projects** delivered — across Fiverr, Upwork & direct clients
+- **700+ projects** delivered to clients worldwide
 - **Level 2 Seller** on Fiverr · **Top Rated** on Upwork · **100% Job Success Score**
 - **279 Fiverr reviews** — ~95% five-star · ~1-hour average response time
 - Trusted by agencies in **Germany, Italy & Spain**
